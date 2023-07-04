@@ -1,1 +1,1 @@
-My first readme
+Be strong and courageous
